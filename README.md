@@ -1,2 +1,0 @@
-# tugasakhircitranandini
-tugas praktikum
